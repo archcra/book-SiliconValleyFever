@@ -4,5 +4,5 @@
 * [献给](to.md)
 * [致谢](acknowledgements.md)
 * [纪念版前言](preface02.md)
-* [Chapter01](chapter01.md)
+* [第一部份](chapter01.md)
 * [Chapter02](chapter02.md)
