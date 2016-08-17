@@ -11,6 +11,7 @@
 正如一些人在硅谷慢跑孔或电脑孔，我们一直以“硅谷孔”我们的家人，朋友和同事，在过去的几年。我们为这个问题激烈介入道歉。但是，我们不能保证我们在高科技领域的文化的兴趣的任何进一步减轻。它是未来。
 
 
-EVERETT M. ROGERS  斯坦福大学，加州
-JUDITH K. LARSEN  洛斯阿尔托斯，Colifornia
+**EVERETT M. ROGERS**  斯坦福大学，加州
+
+**JUDITH K. LARSEN  洛斯阿尔托斯**，Colifornia
 
